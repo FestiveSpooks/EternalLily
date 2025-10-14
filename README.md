@@ -1,6 +1,5 @@
 ## <img width="30" height="30" alt="Drawing-37 sketchpad (1)" src="https://github.com/user-attachments/assets/c600b03d-e1b3-4bb2-84d5-370cf33c4939" /> EternalLily <img width="30" height="30" alt="Drawing-37 sketchpad" src="https://github.com/user-attachments/assets/4af08551-933d-4592-847a-6f23e02d2861" />
 
-# Umm... hi... Throws my ship at you (Eternal Sugar Cookie x White Lily Cookie)
 ##
 <img width="268" height="259" alt="Screenshot 2025-09-29 5 41 59 AM" src="https://github.com/user-attachments/assets/4aca3b4a-ec2e-45a2-bb7c-f757651a0fde" />
 <img width="359" height="261" alt="Screenshot 2025-09-29 5 42 05 PM" src="https://github.com/user-attachments/assets/6c46a1c5-bbeb-4e13-8517-7945bda606e0" />
